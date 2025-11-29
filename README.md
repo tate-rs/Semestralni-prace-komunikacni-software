@@ -15,3 +15,4 @@
 | **Rok:** | 2025 |
 | **Cvičící:** | Mgr. Hana Vojáčková, Ph.D. |
 
+Dobrý den, téma práce vám schvaluji. Hana Vojáčková
